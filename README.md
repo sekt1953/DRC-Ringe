@@ -2,7 +2,7 @@
 
 Hjælpe side for DRC i Ringe
 
-## Symaskiner på Cafee Værkstedet
+## Symaskiner på Cafe Værkstedet
 
 * [SMARTER BY PFAFF™ 140s](https://frank-toyota.dk/shop/12-pfaff-symaskiner/518-pfaff-smarter-by-pfaff-140s-symaskine/ "Frank-Toyota &Oslash;sterbro ApS
 ")
